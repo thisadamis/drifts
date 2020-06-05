@@ -1,2 +1,0 @@
-# drifts
-My Notes
